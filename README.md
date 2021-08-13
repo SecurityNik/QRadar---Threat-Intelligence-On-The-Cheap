@@ -24,7 +24,7 @@ Feel free to reach out to me if you have any questions, concerns and or comments
 
 P.S. Point to note is the quality of these list are dependent on the people who publish them. I give no warranty or am I vouching for these lists. These IPs and or domains should be used as a starting point of your investigation and not the ultimate decision as to whether something good or bad has happened.
 
-I'd you need the code only that ‎can be found here‎:
+If you need the code only that ‎can be found here‎:
 https://drive.google.com/file/d/0B0qDfJ30s2I9ajRXTHh2UTItbkk/view?usp=sharing
 
 ‎Enjoy!!
